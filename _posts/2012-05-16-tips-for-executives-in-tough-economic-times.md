@@ -1,0 +1,18 @@
+---
+id: 308
+title: Tips for Executives in tough economic times
+date: 2012-05-16T13:58:00+00:00
+author: admin
+layout: post
+guid: http://plaztikjezuz.com/2012/05/16/tips-for-executives-in-tough-economic-times/
+permalink: /2012/05/16/tips-for-executives-in-tough-economic-times/
+categories:
+  - General
+---
+As an executive, both you and your organization have much to gain if you’re truly a good listener. In this article, I will share with you some approaches to listening to your stakeholders that, from first-hand experience, will have a positive impact on corporate profits. You may already believe that you are a great listener…most executives do. However, the statistics on the reality of great listeners bears witness to a dismal few who have mastered this crucial skill.
+
+Working as an Executive Coach over the past 15 years with C-level executives in Fortune 500 companies, I have come to the conclusion that huge potential profits are lost through a lack of good communication skills at the executive level. You may say to me, “Well, our Communications Department takes care of that, or our Human Resources Department in the case of employees, or yet again, our trained Customer Service Department. But then I have to ask: Are they the ones who set the tone and make the decisions for the organization, or is this done by the executives and board members?
+
+More often than not, executives make decisions based on information gathered from others around them and information that has been filtered up to them. Hence, this information has been positioned, massaged, and “translated” to what you hope to be reliable. That is the first area of miscommunication. Also, as an executive, you tend to be visionary and communicate in a future-forward fashion. This is a common and costly area of perceived miscommunication. I can tell you from personal experience working with organizations that are going through tough financial times coupled with lay-offs, that this kind of visionary communication is exactly what your employees DO NOT want to be hearing. While working with a global technology organization, I encouraged the CEO to go into his employees’ environment and literally sit and have coffee with a dozen people chosen at random in order to get a “feel” for how they were thinking and feeling. This took a little coaching of course. For employees to share their real feelings and thoughts, the CEO had to fully engage them. This also meant making good eye contact, posture, gestures and facial expressions. And of course, the questions themselves had to be open-ended and inviting, giving pause so that the employee could respond in a relaxed manner. The employees, as you might expect, were at first quite intimidated and scared to speak their minds, anticipating negative repercussions for their honesty. However, once word got out that the boss was sincere and that the discussions were non-judgmental, the employees really did share important insights.
+
+In short order, the CEO realized that the visionary messages that were being communicated to the employees were not only falling on deaf ears, but were also panicking them. Their concerns were much more concrete. They wanted to know how secure their jobs were going to be today and tomorrow. And, by tomorrow, it became clear, that this meant the next 24-hour period. Another important insight that was uncovered was that the employees, in general, DID NOT want to hear how things were going to change for the better, but rather how things in their immediate environment were NOT going to change.

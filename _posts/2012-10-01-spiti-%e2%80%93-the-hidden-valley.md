@@ -1,0 +1,30 @@
+---
+id: 399
+title: Spiti – The Hidden Valley
+date: 2012-10-01T04:10:00+00:00
+author: admin
+layout: post
+guid: http://plaztikjezuz.com/2012/10/01/spiti-%e2%80%93-the-hidden-valley/
+permalink: /2012/10/01/spiti-%e2%80%93-the-hidden-valley/
+categories:
+  - General
+---
+For almost a year, now, we had been planning to visit Spiti; the hidden valley on the northern side of the main Himalayan range. Spiti is home to around 10,000 people who share with their Tibetan neighbours a common ethnicity, language and culture. As it had recently opened to foreign tourism, we were keen to visit the valley, study the local culture, interact with a local school and trek across the Bhaba Pass. The one condition to go was to earn their cost. Bhaba Pass is a fine example of passes on the Greater Himalayan range, which are gradual towards the Tibetan plateau but fall steeply towards the southern side of the range.
+
+With a team of 10 students from a grammar school in England, we embarked on my 2nd and my team’s 1st journey to one of my favourite valleys in India. Spiti Valley. We had flown to Delhi and decided to take an overnight bus ride from there into the dusty market town of Manali at the foothills of the Himalayas. Beyond Manali, the road becomes a series of switchbacks through a pine forest all the way to Kunzum Pass. On the far side of the pass the Spiti Valley soon opened up – a sliver of flat land lined on either side; a continuation of serrated peaks, their summits streaked by veins of lingering ice. Occasionally, the triangular heads of snow-covered mountains reared above these ramparts. The overwhelming colour was brown, in all its variations, broken only by the inky cobalt of the sky and the bottle green of the Spiti River.
+
+From Manali, we arrived at Kibber the next day. Kibber is a 1½ hr journey from Kaza, district headquarter and the largest town in the valley. The single and rickety bus service was packed to the roof. But the journey was made interesting with beautiful landscapes and the local women singing all through the way.
+
+The villagers were hospitable to the students and me, just like before. And it was amazing to see the two diverse cultures of the world – the West and the East – work so closely together. The students spoke no Hindi at all, while students of the school at Kibber spoke little or no English. And yet they introduced themselves, played games, painted the school, danced and laughed together as if language was never a barrier between them. Stewart, one of my team members, was amazed by the simplicity and happiness of the villagers and Jenny, expressed her pleasure at the reception they received, noting ‘how moved the villagers were on seeing us work with them to paint their school. I must have done a really good thing.’ Unknowingly, though, the local people had made a great impact on us as well. We realised a slow process of transformation within us; the realisation that things we believed to be necessities were only luxuries and drove home the importance of simple living after we experienced their lifestyle.
+
+The day one of our tekking schedule from Kibber, took us past the wondrously located Kee Gompa. This beautiful temple, surrounded by terraces, was set above the road, overlooking the Spiti River. So beautiful was the view that it inspired us to go out on a photographic expedition. At the end of the first day everyone was ‘pooped’. The only happy creature was the local village dog, a mastiff we called ‘Rab’, who had decided to attach himself to our group.
+
+Day two heralded a new dawn and we experienced spiritual awakening as we passed another monastery decorated in vivid colours of red, yellow, gold and blue. There were monks in red robes, Tibetan prayer flags like bunting in the breeze and rows of traditional prayer wheels, turned slowly by devotional Buddhists. After a lunch of vegetable dumplings, we moved on to the camp above a village named Dungal. Rab decided to sleep outside the girls’ tent, as if protecting them from intruders and no kind of enticement could induce him to move away.
+
+Day three took us through the small village of Dungal, on a path that winds its way below a village gompa perched on a ridge top. Bush wood collected through the summer for the dreadful winter lined the flat-roofed houses like the ‘wood of life’. Small fields sown with barley and over a meter high swayed in the strong, high-altitude sun. An old mother in salwar-kameez (a local dress worn by women in India) with a triangular shawl thrown over her shoulders stood beside the path, holding her baby as if waiting for it to ripen. Children played with home-made toys, wiping their running noses with the sleeves of their torn jackets. Their chapped cheeks, baked by the cold and the sun, looked like roasted cakes. ‘It is a hard place to live, man,’ said Graeme, pointing out too there were no men to be seen anywhere.
+
+Exhausted from the long strenuous day activities, we camped alongside Dhankar Lake, an 800m x 150m of luxury at the top of the world! Barely did we reach the site when Jenny and Anna, sweating from the walk put on their costumes and jumped in. The leader of the day decided to give the following day as rest. For the team this was bliss.
+
+On the fourth day, after having a breakfast of spicy masala omelettes and hot buttered chapatis (Tashi who came along with us was our cook) we decided to start phase two, the crossing of the Bhaba Pass. The prospect of a minimum of six hours hiking up from the base and two days across into the Satluj valley meant that we would have to get our legs and lungs into shape, and that in turn meant lots of preparatory short walks.
+
+This was an educational tour: a tour for the students and by the students. They led the trek, kept accounts, pitched their own tents, decided the day’s menu and planned the itinerary from Kibber to Dhankar monastery and into the Pin valley to the base of Bhaba Pass.
