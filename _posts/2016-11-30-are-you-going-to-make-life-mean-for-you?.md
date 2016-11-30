@@ -1,5 +1,5 @@
 ---
-title: What Are You Going to Make Life Mean For You?
+title: Are You Going to Make Life Mean For You?
 author: admin
 layout: post
 categories:
